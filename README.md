@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Project AgroChain AI**
 
-- 📝 I regularly write articles on [Travel and sports](Travel and sports)
+- 📝 I regularly write articles on Travel and sports
 
 - ⚡ Fun fact **I also coach football games**
 
